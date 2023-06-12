@@ -22,4 +22,5 @@
 
 ![8256_36469_651 jpg](https://github.com/2022039078/2022039078_HW2/assets/131639123/a9776e86-a467-4a26-b4f1-13ca084ee80b)
 
-![tmp4j5qal9b](https://github.com/2022039078/2022039078_HW2/assets/131639123/1deb77e0-b188-49be-a2bb-4e4343c65d24)
+![tmpxkxlneg7](https://github.com/2022039078/2022039078_HW2/assets/131639123/f39c0e7d-74b8-4c68-8b29-fdaaf594c6be)
+
